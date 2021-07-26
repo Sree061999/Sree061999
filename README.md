@@ -1,0 +1,5 @@
+- Hi, I’m Sreejita
+- I’m interested in the evolving technologies such as neural networking,artificial intelligence and machine learning.
+-  I’m currently learning artificial Intelligence and Machine Learning and building mini projects on the same.
+- You can reach me via- sreejitasamadder08@gmail.com
+- Linkedin- www.linkedin.com/in/sreejita-samadder
