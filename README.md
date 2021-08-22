@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sreejitasamadder08@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_DG7wVKi-XFTkLC1BYPNAU-6uPasDjJa/view?usp=sharing](https://drive.google.com/file/d/1_DG7wVKi-XFTkLC1BYPNAU-6uPasDjJa/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_DG7wVKi-XFTkLC1BYPNAU-6uPasDjJa/view?usp=sharing](https://drive.google.com/file/d/1t5Y_EoNY9H0DsgQStvdElzeAB99dJsgF/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
