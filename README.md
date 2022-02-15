@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=sree061999" alt="sree061999" /></a> </p>
 
-- 🌱 I’m currently learning **Artificial Intelligence, Machine learning and python.**
+- 🌱 I’m currently learning **DevOps.**
 
 - 📫 How to reach me **sreejitasamadder08@gmail.com**
 
